@@ -53,7 +53,7 @@ A post-privatisation profitability study of Air India, benchmarking its unit eco
 
 ---
 
-## Author
+## Connect
 
 **Md Alshad Ansari**  
 [LinkedIn](http://www.linkedin.com/in/alshad) | alshad936@gmail.com
